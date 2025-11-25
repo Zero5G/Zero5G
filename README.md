@@ -1,3 +1,3 @@
-### About me I guess
+### about me
 
-There is nothing special about me.
+[insert text about me]
